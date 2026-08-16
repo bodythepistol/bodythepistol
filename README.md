@@ -1,16 +1,15 @@
-## Hi there 👋
 
-<!--
-**bodythepistol/bodythepistol** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+- - -
+<img width="150" height="155" alt="hankwrite" align=right src="https://github.com/user-attachments/assets/dac4d119-39b2-456c-9394-0e10a2821ab7" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="30" height="28" alt="mmhank2" src="https://github.com/user-attachments/assets/fb9085ee-4439-4225-9cf0-acaa8745bdee" /> hank j. wimbleton
+
+he him . adult
+
+
+
+afk or people watching
+
+prefer to be left alone, thank you.
+- - -
